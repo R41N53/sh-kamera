@@ -1,2 +1,3 @@
-# sh-kamera
-Terimakasih atas pembelajarannya
+# DILARANG KERAS MERUBAH DATABASE KAMI
+
+# BY BARTES DWIKY
